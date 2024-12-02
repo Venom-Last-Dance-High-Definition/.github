@@ -7,7 +7,7 @@
 
 <a href="https://sixmedia.online/en/movie/912649/venom-last-dance.newtitle">➤ ►🌍📺📱👉 Venom 3: The Last Dance 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎</a>
 
-<a href="https://sixmedia.online/en/movie/912649/venom-last-dance.newtitle" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/yh64qw9mgXBvlaWDi7Q9tpUBAvH.jpg" alt="" style="max-width: 100%;"></a></p>
+<a href="https://sixmedia.online/en/movie/912649/venom-last-dance.newtitle" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/aosm8NMQ3UyoBVpSxyimorCQykC.jpg" alt="" style="max-width: 100%;"></a></p>
 
 Where to Watch Venom 3: The Last Dance: A Comprehensive Guide to Streaming and More
 
